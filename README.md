@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Maurittz
+- 👀 I’m interested in math and space
+- 🌱 I’m currently learning how to make money
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me tel: 0702173746 
+- 
